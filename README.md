@@ -1,2 +1,2 @@
 # Naslov
-Objasnuvanje 
+Objasnuvanje!
